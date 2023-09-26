@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MirdonT
+- 👋 Hi, I’m @MirdonT.
 - 👀 I’m interested in arts and crafts
 - 🌱 I’m currently learning how to crochet
 - 💞️ I’m looking to collaborate with you!
